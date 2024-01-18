@@ -1,1 +1,1 @@
-# homework_1
+# Solomina Ekaterina
