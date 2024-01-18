@@ -1,1 +1,1 @@
-# Solomina Ekaterina
+# Solomina
